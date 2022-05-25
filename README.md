@@ -5,3 +5,4 @@
 - eu estou aprendendo a programar recentemente a linguagem de javascript e scratch.
 - para entrar em contato comigo use o email:ana.crespin@escola.pr.gov.br
 - formada em bagunça mais amo estudar viuuu
+-VIVA A ESTÉTICA
