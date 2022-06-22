@@ -3,5 +3,4 @@
 - estudo no coléǵio PIO XII
 - eu estou interessada em aprender a programar novas linguagens.
 - eu estou aprendendo a programar recentemente a linguagem de javascript e scratch.
-- para entrar em contato comigo use o email:ana.crespin@escola.pr.gov.br
 - VIVA A ESTÉTICA
